@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ghostwebstudio
 - 👀 I’m interested to give better services
 - 🌱 I’m currently learning what you teach me
-- 💞️ I’m looking to collaborate on redgifs.com
+- 💞️ I’m looking to collaborate on live projects
 - 📫 How to reach me by searching "deep always ahead" on google maps
 - 😄 Pronouns: they
 - ⚡ Fun fact: digital and design agency
